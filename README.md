@@ -1,3 +1,3 @@
 # apna_clg
 <br/>
-devansh sharma
+devansh pandit
